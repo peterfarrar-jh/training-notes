@@ -1,5 +1,7 @@
 # Foundations of Diversity, Equity, Inclusion, and Belonging
 
+- Dereca Blackmon
+
 ## Introduction
 
 ### Your guide to diversity, equity, inclusion, and belonging (DEIB)

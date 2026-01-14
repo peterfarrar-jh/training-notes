@@ -1,5 +1,7 @@
 # Equity First: The Path to Inclusion and Belonging
 
+- Mary-Frances Winters
+
 ## Introduction
 
 ### Equity first

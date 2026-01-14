@@ -1,5 +1,7 @@
 # Leading Your Org on a Journey of Allyship
 
+- Verna Myers
+
 ## 1. What Does "Allyship" Mean?
 
 ### Introduction to allyship
